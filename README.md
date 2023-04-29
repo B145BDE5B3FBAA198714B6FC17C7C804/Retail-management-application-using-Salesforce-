@@ -10,9 +10,8 @@ TEAM MEMBER 2-https://trailblazer.me/id/dhatchp
 TEAM MEMBER 3-https://trailblazer.me/id/dekambaram
 
 
-Vedio Demo link
+Vedio Demo link:https://photos.app.goo.gl/vgKzHyKqFkRkEng67
 
-https://photos.app.goo.gl/YHQaPffrTQsgGGBS9
 
 
 
